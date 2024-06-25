@@ -1,0 +1,4 @@
+- 👋 Hola, soy @Davidandrespadillaperez
+- 👀 estoy interesado en los aplicativos para escritorio
+- 🌱 leo frecuentemente documentos de desarollo multiplataforma
+- 💞️ actualmente no tengo colaboradores, pero me gustaria, si.
